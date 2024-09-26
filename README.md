@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @DariusTheEdible
+- 👀 I’m interested in programming and game cheats!
+- 🌱 I’m currently learning python!
+- 💞️ I’m looking to collaborate on nothing!
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I made a cheat called Aimerson, for roblox!
